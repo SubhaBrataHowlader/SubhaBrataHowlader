@@ -7,7 +7,7 @@
 
 📈 I love to learn and improve my skills and knowledge in all the things i'm passionate about.
 
-🕺🏻 I’m looking to collaborate on Finance/business problems using data analysis to help on the decision-making.
+🤝 I’m looking to collaborate on Finance/business problems using data analysis to help on the decision-making.
 
 📫 Please feel free reach me by sending me an email to : subhabratahow@gmailmail.com or on linkedIn:www.linkedin.com/in/subhabratahowlader
 
