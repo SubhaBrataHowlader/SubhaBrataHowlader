@@ -12,7 +12,7 @@
 
 🤝 I’m looking to collaborate on Finance/business problems using data analysis to help on the decision-making.
 
-📫 Please feel free reach me by sending me an email to : subhabratahow@gmailmail.com or on linkedIn:www.linkedin.com/in/subhabratahowlader
+📫 Please feel free reach out to me by sending me an email to : subhabratahow@gmail.com or on linkedIn:www.linkedin.com/in/subhabratahowlader
 
 
 
